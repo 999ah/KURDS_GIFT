@@ -1,0 +1,2 @@
+# KURDS_GIFT
+K0R0N
